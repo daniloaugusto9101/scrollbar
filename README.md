@@ -36,6 +36,10 @@ Indicador de Barra de Rolagem
  
 
 
+https://user-images.githubusercontent.com/91206356/182031746-e34a9c78-d64f-4bae-9ac8-ffcca153689d.mp4
+
+
+
 
 
  
