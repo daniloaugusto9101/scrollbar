@@ -35,7 +35,7 @@ Indicador de Barra de Rolagem
  
  
 
-https://user-images.githubusercontent.com/91206356/174921057-595ac801-ee36-44f1-a63a-607eb1f9ff24.mp4
+
 
 
  
